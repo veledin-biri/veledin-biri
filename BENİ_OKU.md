@@ -1,0 +1,6 @@
+- Merhaba ben @veledin-biri
+- İnternette kod yazmaya çalışırım
+- En sevdiğim oyun tf2 ve gmod
+- java, html, css ve c#'a ilgim vardır.
+- Steam: enjoyer_velet
+- Umarım kendimi açıklayabilmişimdir.
